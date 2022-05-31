@@ -2,7 +2,7 @@
 
 No. [00215748](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf)
 
-[Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Case number MD398530 The People vs Jack Roady 
+[Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 The People vs Jack Roady 
 
 
 ***Early Settlement Option - Galveston County***
