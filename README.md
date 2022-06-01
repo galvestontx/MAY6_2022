@@ -5,6 +5,9 @@ No. [00215748](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd61
 [Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 The People vs Jack Roady 
 
 
+Important Notice concerning above invoice. New Imperial Dollars does not exchange for fiat currencies. The exchange rate for One Imperial Dollar is 47.10 Roubles (Imperial). This is because the currency guarantees fixed exchange in gold. According to the Law of Madinah 622c., it is prohibited to weaponize food or currency, therefore sanctions issued by one government against another will not be enforced by the Madinah Mission. The same is true in reverse. The purpose of the Mission is to promote peace, to do what is beneficial to mankind, and to prohibit what is harmful. The Madinah Mission operates according to a well defined set of standards already known to all governments of the world. 
+
+
 ***Early Settlement Option - Galveston County***
 
 
