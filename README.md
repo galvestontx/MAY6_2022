@@ -9,7 +9,7 @@ No. [00215748](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd61
 
 Important Notice concerning [Exchange Rate](https://github.com/galvestontx/MAY6_2022/blob/59df42713b4092d1d424880f1857901fc6246bbf/NID_INVOICE.pdf). New Imperial Dollars does not exchange into fiat currencies. The exchange rate for One NID is 47.10 Roubles (Imperial). This is because the currency guarantees fixed exchange in gold. According to the Law of Madinah 622c. it is prohibited to weaponize food or currency, therefore sanctions which violate these principles - issued by one government against another will not be honored or enforced by the Madinah Mission. The same is true in reverse. The purpose of the Mission is to promote peace, to do what is beneficial to mankind, and to prohibit what is harmful. The Madinah Mission operates according to well defined set of standards known to all governments of the world. These standards are not waived, regardless of the policies set by any government.
 
-[Other Sanctions Apply](https://drive.google.com/file/d/1elYYYK_TPCs9LBkbVHUpSBqgC3AIqI6T/view?usp=drivesdk)- Following the arrest on 5/6/22, these sanctions are permanent and irrevocable and apply against any institution globally supporting the rogue state regimes in the United States of Great Britain. This government must be abolished!
+[Other Sanctions Apply](https://drive.google.com/file/d/1elYYYK_TPCs9LBkbVHUpSBqgC3AIqI6T/view?usp=drivesdk)- Following the arrest on 5/6/22, these sanctions are permanent/ irrevocable and apply against any entity globally supporting the rogue state regimes in the United States of Great Britain. This government must be abolished!
 
 ***Early Settlement Option - Galveston County***
 
