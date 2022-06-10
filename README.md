@@ -3,7 +3,7 @@
 
 No. [00215748](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf)
 
-[Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 The People vs Jack Roady | Additional notes : Jack Roady will be billed $274.30 for any scheduled appearance. The invoice excludes 6.72 g (fine Gold) penalty for violating known price caps (mv to facevalue). 
+[Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 The People vs Jack Roady | Additional notes : Jack Roady will be billed $274.30 for any scheduled appearance. The invoice excludes 6.72 g (fine Gold) penalty for violating known price caps (mv to facevalue). The invoice also excludes travel fees— item #20-1 $41.17 for 70.282444950 mi (113.10835 km) Texas and Jack Roady must pay prior to the appearance (grace period 30 days from the scheduled appearance date).
 
 [Updated Exchange Rate Notes - Includes KOI Shekels to Roubles](https://github.com/galvestontx/MAY6_2022/blob/41f3fe96fb37ccef9b34b4702b78c06ffcb60893/NID_INVOICE.pdf) - The KOI to Rouble exchange is used exclusively for special Bonds (#175-35002 | 1.767022). A small amount of gold was used to secure a promissory note in the amount of 197.31 Roubles for the purpose of effectuating the KOI to Rouble exchange. Its cost 60.8977584 NID to secure the note (100 NID per grain of gold used).
 
