@@ -1,5 +1,6 @@
 ### ADDITIONAL NOTES | MAY6_2022
 
+
 No. [00215748](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf)
 
 [Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 The People vs Jack Roady | Additional notes : Jack Roady will be billed $274.30 for any scheduled appearance. The invoice excludes 6.72 g (fine Gold) penalty for violating known price caps (mv to facevalue). 
