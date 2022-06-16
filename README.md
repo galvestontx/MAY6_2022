@@ -7,7 +7,9 @@ Invoice excludes 13,200.00 pounds (0.2354 oz gold each) and 70,000 dollars cash 
 
 Its a policy of the US Madinah Mission that all judges and attorney's must present their US passport prior to issuing a decree or bringing a suit against any party. 
 
-Prior to asking questions pertaining to citizenship, a judge must answer whether they, or the entity they work for have violated the sanctions (#00013753) issued against federal, state and local governments, their agencies and corporations.
+Prior to asking questions pertaining to citizenship, a judge must answer whether they, or the entity they work for have violated the sanctions [#00013753](https://drive.google.com/file/d/1elYYYK_TPCs9LBkbVHUpSBqgC3AIqI6T/view?usp=drivesdk) issued against federal, state and local governments, their agencies and corporations.
+
+> Random Notes
 
 [Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 and MD0398259 The People vs Jack Roady and the Texas Government | Additional notes : Jack Roady will be billed $274.30 for any scheduled appearance. The invoice excludes 6.72 g (fine Gold) penalty for violating known price caps (mv to facevalue). The invoice also excludes travel fees (#20-1) Texas and Jack Roady must pay prior to the appearance - 30 day grace period from the scheduled appearance date— $41•17 for ~ 70.282444950 miles (113.10835 km) @ ~ $0.58577928 per mile. 
 
