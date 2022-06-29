@@ -1,3 +1,8 @@
+
+Jack Roady- DA Office and their affiliates and sponsors will be billed $486.57 (standard billing for est time for appearance on 7/05/22)
+
+
+
 ### ADDITIONAL NOTES | MAY6_2022
 
 
