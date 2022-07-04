@@ -16,7 +16,7 @@ Prior to asking questions pertaining to citizenship, a judge must answer whether
 
 > Random Notes
 
-A special time bond was issued against AntiChrist Roady DA of the City of Satan AKA Galveston. The bond will be credited from his time (his time which I bonded for case #0398265 and #0398254- I siezed his time and thus control what he can and cant do with it. I can also slow it down, speed it up or alot some portion of it to another account... pretty much arrested his attention.) to pay for the bond.  
+A special time bond was issued against AntiChrist Roady DA of the City of Satan AKA Galveston. The bond will be credited from his time (his time which I bonded for case #0398265 and #0398254- I siezed his time and thus control what he can and cant do with it. I can also slow it down, speed it up or alot some portion of it to another account... I pretty much arrested his attention - I will do the same for all members of the DAs office and sell that portion of their life which i own in an auction) to pay for the bond.  
 
 
 ___
