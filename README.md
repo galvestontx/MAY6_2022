@@ -16,6 +16,40 @@ Prior to asking questions pertaining to citizenship, a judge must answer whether
 
 > Random Notes
 
+___
+
+The Full inheritance reserved in his name has been conveyed, redeemed and recorded in the Books of the Trust exclusively Established, managed, and controlled by Hatem Alghuti. Said assets may not directly or indirectly be claimed, condemned, or transferred to or by any entity without Hatem Alghuti's explicit verbal and written consent, physically witnessed in front of seven individual congregations of the Abrahamic Traditions, and must begin and end with the verbal recital of the seven opening versus found in the Islamic Criterion.  
+Signed on or about- Dhuʻl-Qiʻdah 29, 1443 AH
+Signed on or about June 26,2022.
+
+For the purpose of the pilot phase "credit" shall be deemed a value refecting the initial deposit.
+
+Amount Deposited estabishing the County of Leagued Cities- 26.47 Credits (15 oz SIL) #00003
+7.43 % county of leagued cities standard tax - held in Trust for the county  
+7.00 Credits credited to Hatem Alghuti for time.
+
+[1 DD](https://github.com/galvestontx/MAY6_2022/blob/014a19e5395ea4b6ccc88f832809dddbd0c67d54/50d%20Coin.pdf)-exchange (not the 50.00 coin) = £1.225 
+
+DD-EX is not the same wt as the Damascus Dollar for Union Nations. The exchange coin is 7.941 g Cupronickel alloy
+
+New Currency and Measurement System will be Published in the Near Future 
+
+21.74 [Impr.](https://github.com/galvestontx/Autonomous-Self-Administrative-Division/blob/8bccfd51213ac4855e50686789f0c7ecdae74011/US731.pdf) = [1 Damascus Dollars or 50.00 US-Exchange](https://github.com/galvestontx/MAY6_2022/blob/014a19e5395ea4b6ccc88f832809dddbd0c67d54/50d%20Coin.pdf)-exchange 
+
+With [this declaration](https://github.com/galvestontx/malicious_prosecution/blob/91d9bbe2a4fb1f8c33b9c6a2d34c762415a936ac/327.pdf) an additional 1 m shares were issued initiating Block#2
+
+Witness: 41:53 | 4:166 | 48:28 (ٱلْشَّهِيدُ)
+
+10.00 Damascus Dollars Deposited (coin#953) by Hatem Alghuti for Block# 2.02
+
+Declaration Published 7:18 PM CTS (8:18 EST)
+Land Area of the continental US has been purchased for 0.22 KOI per km2 (offered 0.12 NID after debt settled)
+
+
+
+
+___
+
 [Invoice for 132 hours 5/06/22](https://github.com/galvestontx/MAY6_2022/blob/7b67b5101d34c49fd611ab3b218d2ed517d43f6f/Invoice_Roady.pdf) - Tribunal Case number MD398530 and MD0398259 The People vs Jack Roady and the Texas Government | Additional notes : Jack Roady will be billed $274.30 for any scheduled appearance. The invoice excludes 6.72 g (fine Gold) penalty for violating known price caps (mv to facevalue). The invoice also excludes travel fees (#20-1) Texas and Jack Roady must pay prior to the appearance - 30 day grace period from the scheduled appearance date— $41•17 for ~ 70.282444950 miles (113.10835 km) @ ~ $0.58577928 per mile. 
 
 [Updated Exchange Rate Notes - Includes KOI Shekels to Roubles](https://github.com/galvestontx/MAY6_2022/blob/41f3fe96fb37ccef9b34b4702b78c06ffcb60893/NID_INVOICE.pdf) - The KOI to Rouble exchange is used exclusively for special Bonds (#175-35002 | 1.767022). A small amount of gold was used to secure a promissory note in the amount of 197.31 Roubles for the purpose of effectuating the KOI to Rouble exchange. Its cost 60.8977584 NID to secure the note (100 NID per grain of gold used).
