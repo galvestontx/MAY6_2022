@@ -16,6 +16,9 @@ Prior to asking questions pertaining to citizenship, a judge must answer whether
 
 > Random Notes
 
+A special time bond was issued against AntiChrist Roady DA of the City of Satan AKA Galveston. The bond will be credited from his time (his time which I bonded for case #0398265 and #0398254- I siezed his time and thus control what he can and cant do with it. I can also slow it down, speed it up or alot some portion of it to another account) to pay for the bond.  
+
+
 ___
 
 The Full inheritance reserved in his name has been conveyed, redeemed and recorded in the Books of the Trust exclusively Established, managed, and controlled by Hatem Alghuti. Said assets may not directly or indirectly be claimed, condemned, or transferred to or by any entity without Hatem Alghuti's explicit verbal and written consent, physically witnessed in front of seven individual congregations of the Abrahamic Traditions, and must begin and end with the verbal recital of the seven opening versus found in the Islamic Criterion.  
